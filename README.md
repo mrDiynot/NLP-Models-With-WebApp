@@ -3,3 +3,5 @@ My NLP app combines Question Answering, English-to-French translation, Text Summ
 
 Hi on fiverr we cant do students work and you said im student so i recomment you contatc me out side whastapp +923104840514
 Then i tell you howto do this all thing
+and on fiverr say 
+ok i let you know in some time
